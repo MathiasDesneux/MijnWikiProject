@@ -73,3 +73,11 @@ De illusie geeft de Resistance genoeg tijd om via Rey te ontsnappen aan boord va
 Op Ahch-To kijkt Luke naar de dubbele zonsondergang, net als in zijn jeugd op Tatooine.
 Uitgeput door de immense inspanning en in vrede met zijn keuzes, verdwijnt hij in de Force.
 
+### Epiloog – De vonk van hoop
+
+De overlevenden van de Resistance hergroeperen.
+Rey bewaart de oude Jedi-geschriften, vastbesloten om de orde opnieuw op te bouwen.
+Kylo Ren, nu Supreme Leader, blijft worstelen met zijn innerlijke duisternis.
+De film eindigt op Canto Bight, waar een jonge staljongen een bezem met de Force optilt en naar de sterren kijkt — een symbool dat de Force in iedereen leeft, en dat hoop nooit sterft.
+
+
